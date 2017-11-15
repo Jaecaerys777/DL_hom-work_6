@@ -1,1 +1,1 @@
-# DL_homework_6
+ https://jaecaerys777.github.io/DL_hom-work_6/.
